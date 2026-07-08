@@ -1,0 +1,1 @@
+# S2-PRP-Infografia-ChispaSpot
